@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Page is designed with idea of simpicity, each of the blogs have been written by yours truly. What I write comes from the simple idea! I try to find naswers to questions which I am intrested in. Finding a common theme would be hard but there are two common determinants for the blogs desplayed here: 1. they some kind of data to answer 2. the inquearies that have been birthed in my mind 
